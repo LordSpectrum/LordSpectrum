@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LordSpectrum
 - 👀 I’m interested in ... website Designing.
 - 🌱 I’m skilled at ... HTML and CSS frontend development
-- 💞️ Posted works would be incomplete. Interested clients may contact me via 09041857046 on Whatsapp for any interested projects.
+- 💞️ Posted works would be incomplete. Interested clients may contact me via 09041857046 on Whatsapp or chinedudaniel739@gmail.com for any interested projects.
 - 😄 Pronouns: ... He
 - ⚡ Fun fact: ...
